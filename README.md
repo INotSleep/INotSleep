@@ -4,7 +4,7 @@ The programmer does not write the code, but the code writes the programmer.
 
 ## Contacts
 
-My Discord: INotSleep#2300
+My Discord: inotsleep
 
 ## My plans
 
